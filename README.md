@@ -1,0 +1,1 @@
+# Are-Equally-Strong-CodeSignal-Challenge-
